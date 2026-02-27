@@ -1,0 +1,5 @@
+msgpack_python==0.5.6
+pycryptodome==3.14.1
+PyYAML==6.0
+PyYAML==6.0.3
+Requests==2.32.5
