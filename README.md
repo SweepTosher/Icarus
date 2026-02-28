@@ -7,4 +7,8 @@ just a poc and has bascially 0 functions. career's must be manually started on a
 
 ~~good luck to those seeking to do so~~     
 
-ah fuck it. one chance to make history. 
+
+yeah its definitely possible. for obvious reasons the automated version shall remain private
+
+https://github.com/user-attachments/assets/df229289-ed97-4810-b757-fb51a9975b13
+
