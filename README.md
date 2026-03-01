@@ -15,3 +15,6 @@ https://github.com/user-attachments/assets/df229289-ed97-4810-b757-fb51a9975b13
 
 lol. world's first illegal uma
 <img width="585" height="888" alt="image" src="https://github.com/user-attachments/assets/c1a54a3f-6d10-4513-b990-9287f8215854" />
+
+
+1st of march. time to let it rip
