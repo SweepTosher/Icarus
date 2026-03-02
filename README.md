@@ -23,5 +23,9 @@ lol. world's first illegal uma
 
 10 hours into reset seems like im finally getting throttled. account will run out of carrots in 9 hours. good run.
 
+<img width="483" height="145" alt="{D2B706DD-CAD4-45F9-B3E6-D4EAF825A8CA}" src="https://github.com/user-attachments/assets/8e30e618-5f16-4a72-9d88-09e17fa9ea17" />    
 
- 
+
+400 carrots left. i need my 1st aniv stimulus package.    
+
+Honestly it’s been so many years since I’ve enjoyed computing. Thanks cygames.
