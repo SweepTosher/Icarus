@@ -29,3 +29,8 @@ lol. world's first illegal uma
 400 carrots left. i need my 1st aniv stimulus package.    
 
 Honestly it’s been so many years since I’ve enjoyed computing. Thanks cygames.
+
+
+wait i have to adapt this for mant later kms
+
+![waahwahh](https://github.com/user-attachments/assets/a195bf17-4baa-4556-98c2-fad0eebcc12b)
