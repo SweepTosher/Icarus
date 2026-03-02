@@ -34,3 +34,9 @@ Honestly it’s been so many years since I’ve enjoyed computing. Thanks cygame
 wait i have to adapt this for mant later kms
 
 ![waahwahh](https://github.com/user-attachments/assets/a195bf17-4baa-4556-98c2-fad0eebcc12b)
+
+
+>valentine's gift.       
+>2x rewards.          
+>half TP.      
+I'm back.        
