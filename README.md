@@ -17,4 +17,11 @@ lol. world's first illegal uma
 <img width="585" height="888" alt="image" src="https://github.com/user-attachments/assets/c1a54a3f-6d10-4513-b990-9287f8215854" />
 
 
-1st of march. time to let it rip
+1st of march. time to let it rip       
+
+<img width="902" height="281" alt="image" src="https://github.com/user-attachments/assets/31eec86a-4cd9-4dc3-aa5f-afc6244578f8" />
+
+10 hours into reset seems like im finally getting throttled. account will run out of carrots in 9 hours. good run.
+
+
+ 
