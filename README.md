@@ -44,3 +44,7 @@ I'm back.
 this is getting sad.      
 I'm just gonna pull the plug later this is getting boring.    
 paper tiger lmao.       
+
+
+
+if anyone wanna provide semi whale accounts I can technically run a few hundred of them at once next month 
