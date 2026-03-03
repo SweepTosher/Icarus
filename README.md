@@ -40,3 +40,7 @@ wait i have to adapt this for mant later kms
 >2x rewards.          
 >half TP.      
 I'm back.        
+
+this is getting sad.      
+I'm just gonna pull the plug later this is getting boring.    
+paper tiger lmao.       
