@@ -50,3 +50,5 @@ paper tiger lmao.
 if anyone wanna provide semi whale accounts I can technically run a few hundred of them at once next month
 
 if falco event isn't rigged to win I will release this to the public 
+
+>500b
